@@ -1,1 +1,0 @@
-Server de amigos
